@@ -1,4 +1,4 @@
-- 👋 hey, nyrotezium
+- 👋 hey, im nyrotezium
 - 👀 im interested in typing, building keyboards, and PC building
 - 🌱 im currently learning many things
 - 📫 contact(s): discord - @_nyrodev or @nyrotezium
